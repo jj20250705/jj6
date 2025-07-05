@@ -11,6 +11,6 @@
 寻找日本AV免费资源时，平台A提供无广告的免费影片，更新及时，分类清晰。平台B注重高清画质，支持多设备播放，保证流畅体验。平台C按女优分类，更新迅速，适合粉丝追新片。
 平台D优化移动端体验，确保流畅播放。平台E结合免费与高清付费影片，满足不同需求。这些平台各具特色，能满足不同用户的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/jj20250705/jj6 ）</span>
 
 
